@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **adel4ashraf@outlook.com**
 
-- 📄 Know about my experiences []()
+- 📄 Know about my experiences [My Resume](https://bit.ly/3vUATUb)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
